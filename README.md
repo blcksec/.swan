@@ -1,1 +1,1 @@
-[blcksec](blcksec)
+[blcksec](logo)

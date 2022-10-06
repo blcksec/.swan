@@ -3,6 +3,6 @@
 )[🅱🆂]
 🅱lck🆂wan
 
-[]()(\n🅱🆂)[🅱lck🆂ec]\n
-🅱🆂
+[🅱lck🆂wan](BLCKSWAN)(\n🅱🆂)[🅱lck🆂ec]\n
+🅱🆂BLCKSWAN
 

@@ -1,8 +1,8 @@
 [🅱🆂](🅱🆂)(
-🆂ec\n
+🆂ec'\n'
 )[🅱🆂]
 🅱lck🆂wan
 
-[🅱lck🆂wan](BLCKSWAN)(\n🅱🆂)[🅱lck🆂ec]\n
+[🅱lck🆂wan](BLCKSWAN)('\n'🅱🆂)[🅱lck🆂ec]'\n'
 🅱🆂BLCKSWAN
 

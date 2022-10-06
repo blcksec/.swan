@@ -1,1 +1,2 @@
-[🅱lck🆂ec](logo)
+[🅱lck🆂ec]()
+(🅱lck🆂ec)[🅱lck🆂ec]

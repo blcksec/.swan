@@ -1,4 +1,4 @@
-[🅱🆂](🅱🆂)(
+[blckswan](BLCKSWAN)(
 🆂ec
 "\n"
 )[🅱"\n"🆂]
